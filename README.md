@@ -4,6 +4,15 @@
 
 <br>
 
+
+https://user-images.githubusercontent.com/10168979/140739623-188fbfa1-c7aa-4490-8f29-1b80f089a504.mp4
+
+
+https://user-images.githubusercontent.com/10168979/140740197-6402a796-b623-45f7-b209-dac1213ff712.mp4
+
+
+<br>
+
 初めて１ヶ月で作成した物なので、色々おかしい所もあります。
 
 ![0](https://user-images.githubusercontent.com/10168979/132124522-314f66f8-4d9b-458f-bca3-11302a5dc710.PNG)
